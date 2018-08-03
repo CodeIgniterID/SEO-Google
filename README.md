@@ -1,2 +1,2 @@
 # SEO-Google
-Optimasi layanan jasa SEO bergaransi untuk tayangkan website bisnis di halaman depan secara organik
+Optimasi layanan <a href="https://www.seosatu.com/">jasa SEO bergaransi</a> untuk tayangkan website bisnis di halaman depan secara organik
